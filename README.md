@@ -1,0 +1,110 @@
+# Raon – NEON
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeah
+Come on
+Always on your mind
+ooh ah!
+Na na na na na na
+[You're Radiant]
+色ズレたgaze
+焦点合わせて
+[your gaze]
+ほら見てみて見て奥まで
+Ah
+魅入ってちゃ
+あっけなくがんじがらめ
+[oh yeah]
+Yeah
+[Yeah Yeah Yeah Yo]
+重なる色彩 Oh No
+Colors Exploding
+It's you oh woah!
+はじける火花はそう
+[yup]
+See it, Love it
+Neon, Ah
+Drunk on it
+Gotta love it
+もっと I want some more yuh
+[Chromatic Love All Day]
+Feelin' like oh so crazy
+Ecstasy flowin' through me
+溺れて行く程 oh woah
+You're radiant
+NEON NEON
+[You know, you know, you know]
+You're radiant
+NEON NEON
+Colors so fresh, Ah
+You're radiant
+NEON NEON
+[You know, you know, you know]
+You're radiant
+NEON NEON
+朝までNEON
+天に達す感覚
+[Ah]
+脳髄響き増す快楽
+触れるたび high in the sky
+Fly Fly Fly eh
+トぶ程暴力な愛でも
+野蛮な程甘さが立つの
+Yeah it's you, you're the one I'll always pick
+Only you make me glow
+まだまだ to the top
+色褪せてちゃ stop
+Show em all just what you got
+[Yeah you know you got me baby]
+[Yeah Yeah Yeah Yo]
+重なる色彩 Oh No
+Colors Exploding
+It's you oh woah!
+弾けて all in rainbow
+[yup]
+See it, Love it
+Neon, Ah
+Drunk on it
+Gotta love it
+もっと I want some more yuh
+[Chromatic Love All Day]
+Feelin' like oh so crazy
+Ecstacy flowin' through me
+溺れて行く程 oh woah
+Oh baby You're radiant
+NEON NEON
+[You know, you know, you know]
+You're radiant
+NEON NEON
+Colors so fresh, Ah
+You're radiant
+NEON NEON
+[You know, you know, you know]
+You're radiant
+NEON NEON
+朝までNEON
+彩り行く世界
+これが焦がれし愛
+Got that chromatic love just for you baby
+My love for you's that way
+Gonna stay like that every day
+Come on
+Let's heat it up!
+Drunk on it
+Gotta love it
+もっと I want some more yuh
+[Chromatic Love All Day]
+Feelin' like oh so crazy
+Ecstacy flowin' through me
+溺れて行く程 oh woah
+Oh baby You're radiant
+隠したりしないでこの
+火花散る赤い情熱を
+Lets just run away together now
+(NEON NEON)
+逃してないでこの
+火花散る赤い情熱を
+Babe you know I'll always be neon
+```
